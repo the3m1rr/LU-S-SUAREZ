@@ -1,0 +1,2 @@
+# LU-S-SUAREZ
+FİLTER KEYS ORGİNALS @the3m1rr
